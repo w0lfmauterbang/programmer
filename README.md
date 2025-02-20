@@ -1,0 +1,2 @@
+# programmer
+Bukan Developer biasa
